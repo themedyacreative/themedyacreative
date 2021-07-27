@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @themedyacreative
+- Themedya Software and Design
